@@ -1,0 +1,1 @@
+What you can see here are programs i wrote to use in labolatories. Thease are not all of them, some of them are old and poorly written. I constantly learn new things, new standards and i try to improve as much as I physicaly can. 
